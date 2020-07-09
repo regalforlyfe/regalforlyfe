@@ -6,7 +6,7 @@
 
 - Majoring in **D3 Computers and Information Systems** :desktop_computer:
 
-- I am passionate in **Frontend Developer** and **UI/UX Designer** :man_technologist:
+- **Frontend Developer** and **UI/UX Designer** :man_technologist:
 
 - I am capable to learn new things in a **short time**, **work hard**, and **communicate well** :bulb:
 
