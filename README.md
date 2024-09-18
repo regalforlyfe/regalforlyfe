@@ -2,10 +2,6 @@
 
 ##### My name is Ahmad Rifal, You can call me Pale.
 
-- Currently I am studying at **Gadjah Mada University** :man_student:
-
-- Majoring in **D3 Computers and Information Systems** :desktop_computer:
-
 - **Frontend Developer** and **UI/UX Designer** :man_technologist:
 
 - I am capable to learn new things in a **short time**, **work hard**, and **communicate well** :bulb:
