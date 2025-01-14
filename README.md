@@ -6,7 +6,7 @@
 
 - I am capable to learn new things in a **short time**, **work hard**, and **communicate well** :bulb:
 
-- You can reach me through [Instagram](https://www.instagram.com/rifalahmd2) or [LinkedIn](https://www.linkedin.com/in/ahmad-rifal-320b3b115/) :nerd_face:
+- You can reach me through [Instagram](https://www.instagram.com/rifalahmd2) or [LinkedIn](https://www.linkedin.com/in/ahmad-rifal) :nerd_face:
 
 Nice to meet you :wave:
 
