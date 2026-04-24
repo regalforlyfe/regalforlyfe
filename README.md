@@ -2,7 +2,7 @@
 
 ##### My name is Ahmad Rifal, You can call me Pale.
 
-- **Frontend Developer** and **UI/UX Designer** :man_technologist:
+- **Fullstack Developer** :man_technologist:
 
 - I am capable to learn new things in a **short time**, **work hard**, and **communicate well** :bulb:
 
